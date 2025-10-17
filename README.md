@@ -15,7 +15,7 @@
   <img width="1071" height="1606" src="https://i.postimg.cc/SsgYpLt4/tumblr-1d340b5075701a9ed6266f343ac36750-c9212563-2048-2.png">
 </p>
 
-<p align="center">lucifer　ₒᵣ　veritas　　(* ^ ω ^)　　17ᵧₒ　　african american</p>
+<p align="center">lucifer　ₒᵣ　veritas　　(* ^ ω ^)　　18ᵧₒ　　african american</p>
 <p align="center">audhd　　sys　　mentally disabled　　⁺</p>
 <p align="center">w2i (i get distracted easily)　　c+h freely unlesss stated otherwise</p>
 
