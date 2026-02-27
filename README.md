@@ -21,7 +21,7 @@
 
 <p align="center"
 
-[𝓡entry](https://rentry.co/fawnscy)⠀‧⠀[𝓐tabook](https://jingyuan.atabook.org/)⠀‧⠀[𝓑yi](https://rentry.co/yotf3amw)⠀‧⠀[𝓓iscord](https://discordapp.com/users/821413859163111484)
+[𝓡entry](https://rentry.co/knivedfingers)⠀‧⠀[𝓐tabook](https://jingyuan.atabook.org/)⠀‧⠀[𝓑yi](https://rentry.co/sinfulconfessions)⠀‧⠀[𝓓iscord](https://discordapp.com/users/821413859163111484)
 </p>
 
 <p align="center">
